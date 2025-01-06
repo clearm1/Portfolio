@@ -1,6 +1,7 @@
 # Portfolio
 
-![Cat](![octocat-1736172760902](https://github.com/user-attachments/assets/04b6edec-0071-47a8-8f01-bf2b376a2f34)
+
+![my exact likeness](https://github.com/user-attachments/assets/77e943e6-4368-472a-98b0-05480f25062e)
 
 -Hello, I'm @clearm1\
 -📚I attend Walpole High School\
